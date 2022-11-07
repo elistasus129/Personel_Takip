@@ -28,6 +28,9 @@ DERS ÖĞRETMENİ : İSMAİL DÜŞMEZ
 
 ![image](https://user-images.githubusercontent.com/61631884/200411441-0e83db20-e95a-4577-af07-0741f9c42c9f.png)
 
+![image](https://user-images.githubusercontent.com/61631884/200411815-289d140f-bb48-4d4c-9aea-6265033d1632.png)
+
+
 
 
 
